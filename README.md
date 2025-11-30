@@ -23,4 +23,3 @@ I love building small projects to practice:
 
 📫 Contact
 	•	Email: prayash.parajuli.7@gmail.com
-	•	Location: Birtamode / Jhapa, Nepal
